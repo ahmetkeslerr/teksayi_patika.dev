@@ -1,0 +1,1 @@
+# teksayi_patika.dev
